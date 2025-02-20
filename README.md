@@ -13,4 +13,3 @@ https://500px.com/p/j88comguru
 https://www.tumblr.com/j88comguru
 https://www.twitch.tv/j88comguru/about
 https://www.pinterest.com/j88comguru/
-![image](https://github.com/user-attachments/assets/a7b69acc-b9e6-4bbf-9c1c-ffdbf08b2446)
